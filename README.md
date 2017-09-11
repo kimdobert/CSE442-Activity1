@@ -1,13 +1,13 @@
-toy story 2 was ok
-but insidious chapter 3 was better.
+toy story 2 was ok - lies
+but insidious chapter 3 was better. -fake news
 
-hmmmmm
+hmmmmm - hm? 
 
 HMMMMMMMMM
 
-git broke me
+git broke me - git breaks my heart
 
-git broke the pc
+git broke the pc-I have a mac
 
-git broke everything
+git broke everything -same
 
